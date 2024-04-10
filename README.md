@@ -11,4 +11,4 @@ Bảng điểm HK1 2023-2024:
 ![2023-2024HK1 ](https://github.com/IamPatricKKK/Readme/assets/165500122/5b02cb56-b331-4927-a63f-3fa67229fbb3)
 
 Bảng điểm HK2 2023-2024:
-![2023-2024HK2 ](https://github.com/IamPatricKKK/Readme/assets/165500122/72f3ac40-8138-4202-84d8-1175bd670fec)
+![2023-2024HK2 ](https://github.com/IamPatricKKK/Readme/assets/165500122/387b2df4-8a66-49f0-ab20-133acf77997c)
